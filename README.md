@@ -15,7 +15,7 @@
 
 - 💬 Ask me about **ml,dl,IoT**
 
-- 📫 How to reach me **rasel.thr22@gmail.com**
+- 📫 How to reach me **thr.rasel@gmail.com**
 
 - ⚡ Fun fact **I am lazy but not looser!**
 
